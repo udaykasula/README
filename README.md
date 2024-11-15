@@ -1,5 +1,5 @@
 # 💫 About Me:
-iam currently learning AI/ML<br>I'M QUITE INTERESTED IN CYBER SECURITY <br>
+Iam currently learning AI/ML<br>I'M QUITE INTERESTED IN CYBER SECURITY <br>
 
 
 ## 🌐 Socials:
